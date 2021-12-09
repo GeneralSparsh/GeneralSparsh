@@ -1,7 +1,7 @@
 ### Hey Everyone!!.😉
 Sparsh This side😛 👋
 
-- 🔭 I’m currently working on ... 
+- 🔭 I’m currently working on "Myself" learing new things practicing everyday😗
 - 🌱 I’m currently learning Python 😕
 - 👯 I’m looking to collaborate on Some intersting Projects😊
 - 🤔 I’m looking for help with Game Development😁
