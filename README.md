@@ -1,5 +1,5 @@
-### Hey Everyone!!.😉
-Sparsh This side😛 👋
+### Hey Everyone!!.
+Sparsh This side👋
 
 -  I’m currently working on "Myself" learing new things practicing everyday
 -  I’m currently learning Python 
