@@ -8,5 +8,3 @@ Sparsh This side😛 👋
 -  Ask me about Any Tech Related Stuff
 -  How to reach me: [SincerelyXparsh ](https://www.instagram.com/sincerelyxparsh/) (Instagram) , [SparshSahu770](https://twitter.com/SparshSahu770) (Twitter), [Sparsh Sahu](https://www.linkedin.com/in/-sparshsahu/) (LinkedIn)
 - Pronouns: He/Him
-
-![image](https://
